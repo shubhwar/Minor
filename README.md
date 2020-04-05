@@ -1,1 +1,1 @@
-# Minor
+Read more here: https://lunarblade99.github.io/GCOEA/
